@@ -5,7 +5,7 @@ Over the summer I took an economic course and one of the papers I wrote was on t
 + The cooperation needed from trading partners in order to not greatly hurt domestic industries.
 + and how little our government has prepared our country for a transition into having such a high price on carbon.
 
-This was an essay topic that I went into thinking I knew a lot about but after the research I realized how wrong I was.
+This was an essay topic that I went into thinking I knew a lot about, but after the research I realized how wrong I was.
 ![gas pump](Federal_Carbon_Tax_will_cost_you_sticker_-_2019_-_01.jpeg)
 ![carbon tax comic](7552493338_16fe1e2eb9.jpeg)
 
