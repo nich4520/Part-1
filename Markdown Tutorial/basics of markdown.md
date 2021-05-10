@@ -13,5 +13,3 @@ This was an essay topic that I went into thinking I knew a lot about, but after 
 [Carbon Tax, It's Purpose, and How It Works](https://www.thebalance.com/carbon-tax-definition-how-it-works-4158043)
 
 [National Carbon Tax Upheld by Canada's Supreme Court](https://www.scientificamerican.com/article/national-carbon-tax-upheld-by-canadas-supreme-court/)
-
-*underscore*
