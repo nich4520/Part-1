@@ -14,4 +14,4 @@ This was an essay topic that I went into thinking I knew a lot about, but after 
 
 [National Carbon Tax Upheld by Canada's Supreme Court](https://www.scientificamerican.com/article/national-carbon-tax-upheld-by-canadas-supreme-court/)
 
-__underscore__
+_underscore_
