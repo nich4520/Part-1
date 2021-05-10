@@ -7,6 +7,7 @@ Over the summer I took an economic course and one of the papers I wrote was on t
 
 This was an essay topic that I went into thinking I knew a lot about, but after the research I realized how wrong I was.
 ![gas pump](Federal_Carbon_Tax_will_cost_you_sticker_-_2019_-_01.jpeg)
+
 ![carbon tax comic](7552493338_16fe1e2eb9.jpeg)
 
 [Carbon Tax, It's Purpose, and How It Works](https://www.thebalance.com/carbon-tax-definition-how-it-works-4158043)
